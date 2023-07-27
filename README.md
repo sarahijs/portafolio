@@ -1,4 +1,4 @@
-# Portafolio
+# Portafolio🤓🫡📟
 bienvenida
 ![image](https://github.com/sarahijs/portafolio/assets/140031430/5ef7791b-4eb8-4e88-a7d7-2dbc8a225901)
 un poco sobre mi
